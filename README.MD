@@ -5,7 +5,7 @@
 This repository will be used to show you da wae.
 
 
-[**Insert Something here**]
+[**um Something**]
 
 Pete looked at the warped gun in his hands and felt delighted.
 
