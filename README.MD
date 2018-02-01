@@ -7,6 +7,9 @@ This repository will be used to show you da wae.
 
 [**um Something**]
 
+WHAT UP BOOIIIIIIIIISISSISISISSSSSSSS!!!!!!!!!!!!!!!
+THIS IS SO FUCCIN SIIIIIIIIIIIIIIIIIIIIIICK
+
 Pete looked at the warped gun in his hands and felt delighted.
 
 He walked over to the window and reflected on his chilly surroundings. He had always loved Uganda with its dirty, dripping da queen. It was a place that encouraged his tendency to feel delighted.
@@ -25,7 +28,9 @@ As Pete stepped outside and Knuckles came closer, he could see the square glint 
 
 Pete looked back, even more sparkly and still fingering the warped gun. "Knuckles, I love you, I am your father," he replied.
 
-They looked at each other with jumpy feelings, like two harsh, hilarious hamsters showing the wae at a very modest rave, which had piano music playing in the background and two wild uncles hopping to the beat.
+They looked at each other with tingly, passionate feelings, like two 
+harsh, hilarious 
+hamsters showing the wae at a very modest rave, which had piano music playing in the background and two wild uncles hopping to the beat.
 
 Suddenly, Knuckles lunged forward and tried to punch Pete in the face. Quickly, Pete grabbed the warped gun and brought it down on Knuckles's skull.
 
@@ -33,4 +38,5 @@ Knuckles's handsome feet trembled and his hairy fingers wobbled. He looked sleep
 
 Then he let out an agonising groan and collapsed onto the ground. Moments later Knuckles was dead.
 
-Pete went back inside and made himself a nice mug of cocoa.
+Pete went back inside and made himself a nice mug of milk.
+
