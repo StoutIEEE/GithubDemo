@@ -31,6 +31,8 @@ Suddenly, Knuckles lunged forward and tried to punch Pete in the face. Quickly, 
 
 Knuckles's handsome feet trembled and his hairy fingers wobbled. He looked sleepy, his body raw like a rare, raspy record.
 
-Then he let out an agonising groan and collapsed onto the ground. Moments later Knuckles was dead.
+Then he let out a climax and with an agonising groan and collapsed onto the ground. Moments later 
+Knuckles was dead.
 
 Pete went back inside and made himself a nice mug of cocoa.
+
