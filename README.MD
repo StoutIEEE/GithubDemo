@@ -21,7 +21,8 @@ The wind blew like spit toads, making Pete sparkly.
 
 As Pete stepped outside and Knuckles came closer, he could see the square glint in his eye.
 
-"I am here to show you da wae" Knuckles bellowed, in a funny tone. He slammed his fist against Pete's chest, with the force of 1287 dogs. "You do not know da wae"
+"I am here to show you da wae" Knuckles bellowed, in a funny tone. He slammed his fist against Pete's chest, with the force of 1337 dogs. "You do not 
+know da wae"
 
 Pete looked back, even more sparkly and still fingering the warped gun. "Knuckles, I love you, I am your father," he replied.
 
@@ -33,4 +34,5 @@ Knuckles's handsome feet trembled and his hairy fingers wobbled. He looked sleep
 
 Then he let out an agonising groan and collapsed onto the ground. Moments later Knuckles was dead.
 
-Pete went back inside and made himself a nice mug of cocoa.
+Pete went back inside and made himself a nice mug of TidePods.
+
