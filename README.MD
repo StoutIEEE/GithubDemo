@@ -1,6 +1,6 @@
 ## Do you know da wae?
-
-![](http://jagatplay.com/wp-content/uploads/2018/01/uganda-knuckles-600x337.jpg)
+Yes i do no de way
+![]http://jagatplay.com/wp-content/uploads/2018/01/uganda-knuckles-600x337.jpg)
 
 This repository will be used to show you da wae.
 
